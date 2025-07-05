@@ -21,4 +21,4 @@
 👉 立即浏览：每日最新《日本AV免费在线观看》资源专区！
 
 为提升加载速度与观看体验，我们对站点结构进行了全面优化，支持移动端无广告播放，全站HTTPS安全访问，保障用户隐私。欢迎加入我们，一起发现更多不可错过的极品作品！
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/sunni21358/245218 ）</span>
